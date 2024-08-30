@@ -8,7 +8,7 @@
 
 ✏ Sou estudante
 
-⚽Palmereirense
+⚽ Palmeiras
 
 🏀brooklin nets
 
