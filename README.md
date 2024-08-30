@@ -10,7 +10,7 @@
 
 ⚽Palmereirense
 
-🏀Torço pro brooklin nets
+🏀 brooklin nets
 
 🏐BR
 
